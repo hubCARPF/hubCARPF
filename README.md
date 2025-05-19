@@ -42,7 +42,8 @@ Actualmente me encuentro enfocado en **Seguridad Informática** y **Transformaci
 
 ---
 
-[🌐 LinkedIn](https://www.linkedin.com/in/antoniocarpf/)
+[🌐 LinkedIn Antonio Madroñal Gómez](https://www.linkedin.com/in/antoniocarpf/)
+[🌐 LinkedIn Consultor Alto Rendimiento Protección Financiera](https://www.linkedin.com/in/carpfproteccionfinancieraespa%C3%B1a/)
 
 [🐙 GitHub: @hubCARPF](https://github.com/hubCARPF)
 
