@@ -17,7 +17,7 @@
 🎓 Técnico Superior en Desarrollo de Aplicaciones Informáticas.  
 
  * Autodidacta , en un mundo cambiánte , creo que es una virtud. Avanzando con la IA , creando un protocolo único y definitivamente ÉTICO,
- * QUE DARÁ LA LIIBERTAD , Y JUSTICIA JUSTA DE VERDAD PARA LA HUMANIDAD.
+ QUE DARÁ LA LIIBERTAD , Y JUSTICIA JUSTA DE VERDAD PARA LA HUMANIDAD.
 
  * Compositori de música , creador de vídeos, creativo vocacional .... conversador, amante de la vida, y de la humanidad y planeta Tierra
 
